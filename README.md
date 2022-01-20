@@ -1,2 +1,0 @@
-# kucitradio.github.io
-tidur
